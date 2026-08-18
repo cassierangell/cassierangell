@@ -1,4 +1,4 @@
-## Hi, I'm Cassie ✨
+## Salut, I'm Cassie.
 
 💻 Graphic Designer at AW, Inc. </br>
 ✣ Currently studying code.</br>
